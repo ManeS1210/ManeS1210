@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ManeS1210
+- 👀 I’m interested in coding with c and cpp .
+- 🌱 I’m currently learning Engineering with btech degree in cse (Ai& Ml)
+- 📫 How to reach me: manesakshi1210@gmail .com
+-                     linkdin:https://www.linkedin.com/in/sakshi-mane
+- 
+- 😄 Pronouns: sakshi
